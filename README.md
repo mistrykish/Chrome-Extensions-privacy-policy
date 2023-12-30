@@ -1,0 +1,1 @@
+# Chrome-Extensions-privacy-policy
